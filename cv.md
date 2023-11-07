@@ -1,7 +1,7 @@
 # **Anastasiya Artsiukh**
 
 ## **Contact**
-  * Telephone: ++33 
+  * Telephone: 
   * E-mail: 
 
 ***
